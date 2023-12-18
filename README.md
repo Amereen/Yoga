@@ -58,6 +58,6 @@ Ensure that your contributions align with the platform's purpose and enhance the
 
 ## Contact
 
-For inquiries or feedback, please reach out to [amereenhanvel786@gmail.com](mailto:amereenhanvel786@gmail.com). We appreciate your involvement in shaping the future of Yoga Harmony.
+For inquiries or feedback, please reach out to [amereenhanvel786@gmail.com](mailto:amereenhanvel786@gmail.com). I appreciate your involvement in shaping the future of Yoga Harmony.
 
 Namaste 🕉️🧘‍♀️🧘‍♂️
